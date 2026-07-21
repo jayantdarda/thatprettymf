@@ -1,3 +1,3 @@
 # thatprettymf
 # whatyouwantbabygirlwhereyouat
-#imlookingforyourightnowineeditbad
+# imlookingforyourightnowineeditbad
